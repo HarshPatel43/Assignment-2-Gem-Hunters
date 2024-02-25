@@ -1,6 +1,10 @@
 
 
-https://github.com/HarshPatel43/Assignment-2-Gem-Hunters/assets/156373107/f2ee5bb4-b4d5-4daf-8ac7-100edbf09394
+
+
+https://github.com/HarshPatel43/Assignment-2-Gem-Hunters/assets/156373107/0cdae9c4-3f7f-4b4f-8a6f-43f92ab87a56
+
+
 
 video of console gameplay: 
 
