@@ -1,3 +1,7 @@
+
+
+https://github.com/HarshPatel43/Assignment-2-Gem-Hunters/assets/156373107/f2ee5bb4-b4d5-4daf-8ac7-100edbf09394
+
 video of console gameplay: 
 
 
