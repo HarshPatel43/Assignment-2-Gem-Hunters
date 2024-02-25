@@ -1,4 +1,4 @@
-YouTube video link of console gameplay: 
+video of console gameplay: 
 
 
 Gem Hunters
